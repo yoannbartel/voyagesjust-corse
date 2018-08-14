@@ -1,0 +1,2 @@
+# voyagesjust-corse
+GitHub Pages
